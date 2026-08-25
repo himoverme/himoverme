@@ -3,4 +3,6 @@
 <p align="center"> <img width="636" height="636" alt="Matt icon" src="https://github.com/user-attachments/assets/42c9b0fa-790a-4804-8350-7da0a1f28652" />
 
 
+ 　　　　　　 　　　　　　　　　 　　　　　　　　　[![ata](https://files.catbox.moe/bn3cyt.gif)](https://strawberrycakezz.atabook.org/)　　![wip](https://files.catbox.moe/yaif1z.gif)
+                  
  　　　　　　 　　　　　　　　　　**picture not mine** creds to awesome creator!! ᜊ(˶ˆ꒳ˆ˵)ᜊ 
